@@ -1,2 +1,0 @@
-## 22pwbcs0909
-# UMMAR SHAMAS
